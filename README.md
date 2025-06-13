@@ -4,7 +4,7 @@
 **DevopsWorking/DevopsWorking** Here all my content of Udemy Course is present.
 
 ### Buy 1 Get 1 FREE Course <br/>
-📫 How to reach me: Whatsapp [Link](https://chat.whatsapp.com/CLWOeMT34D4F89dCIHahzn)
+📫 How to reach me: [Whatsapp](https://chat.whatsapp.com/CLWOeMT34D4F89dCIHahzn)
 
 🔭 I’m currently working on DevOps, AI and AIOps
 💬 Ask me about DevOps and AI.
