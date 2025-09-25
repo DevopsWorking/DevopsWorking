@@ -1,14 +1,12 @@
 ## Hi there 👋
 
-
 Visit my [Website](https://www.coursediy.com/) for coupon code. 
 
 **Lowest Price** Coupon code - {month}{year} - **SEPTEMBER2025**
 
-Here all my content of Udemy Course is present.
-
-### Buy 1 Get 1 FREE Course <br/>
 📫 How to reach me: [Whatsapp](https://chat.whatsapp.com/CLWOeMT34D4F89dCIHahzn)
+
+### Buy 1 Get 1 FREE Course using my coupon codes<br/>
 
 🔭 I’m currently working on DevOps, AI and AIOps
 💬 Ask me about DevOps and AI.
